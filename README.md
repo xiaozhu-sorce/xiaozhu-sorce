@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-#I'm an Android developer From China🇨🇳
+# I'm an Android developer From China🇨🇳
 
 - 🔭 A girl who loves computer technology very much
 - 🌱 I’m currently learning in  Central China Normal University.
