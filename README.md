@@ -1,7 +1,7 @@
 # Hi there 👋
 
 
-### I'm a student From CCNU🇨🇳
+### I'm a Student From CCNU🇨🇳
 
 - 👧 A girl who loves computer technology very much
 - 📕 I’m currently learning in  Central China Normal University
